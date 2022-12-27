@@ -1,1 +1,1 @@
-# rsschool-cv
+https://DagaMir.github.io/rsschool-cv/cv
